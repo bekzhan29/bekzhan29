@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @bekzhan29
-- 📫 How to reach me bekjan298@gmail.com
 - ![Linkedin](https://i.stack.imgur.com/gVE0j.png) My linkedin [bekzhan29](https://www.linkedin.com/in/bekzhan29)
 
 <!---
